@@ -1,3 +1,3 @@
 # Kokoa Clone 2025 update
 
-html css master!
+I want to be developer
